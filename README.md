@@ -8,3 +8,7 @@ sprint 2: https://alumnosuady-my.sharepoint.com/:x:/g/personal/a22208032_alumnos
 
 Interfaces de figma 
 https://www.figma.com/proto/oVbQ3RsxZNpOguBxVrcBCq/interfaz-foodlink?node-id=0-1&t=n9KxJRgrFtM646Ri-1
+
+
+Video presentación
+https://alumnosuady-my.sharepoint.com/:w:/g/personal/a22200596_alumnos_uady_mx/EUENg-9KLMJCq4xQb_mNfb4B8PRXKESLMP7zBQbqUHKXZA?e=GzCC2z
